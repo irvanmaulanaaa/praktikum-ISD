@@ -1,1 +1,3 @@
-# praktikumisd
+NAMA : IRVAN MAULNA
+
+NIM : 607062330013
